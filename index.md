@@ -1,3 +1,7 @@
+Home | The Purcell Society Edition | Companion Series | Contact us
+
+***  
+
 ## Welcome to the Purcell Society  
 
 The Purcell Society is publishing the complete musical works of Henry Purcell in modern, authoritative printed editions. The Purcell Society Edition is designed with performers, researchers, librarians and music lovers in mind.  
