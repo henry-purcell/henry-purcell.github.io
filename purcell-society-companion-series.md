@@ -11,9 +11,9 @@ The Companion Series is available from Stainer & Bell.
 The following six volumes are available.  
 
 Vol.  
-1 – Louis Grabu: Albion and Albanius (2008)  
-2 – John Blow: Venus and Adonis (2008)  
-3 – Giovanni Battista Draghi: ‘From harmony’ (A Song for St Cecilia’s Day, 1687) (2011)  
-4 – Restoration Trio Sonatas (2012)  
-5 – Odes on the Death of Henry Purcell (2013)  
-6 – English Keyboard Music 1650–1695: Perspectives on Purcell (2018)  
+1 – [Louis Grabu: Albion and Albanius (2008)](https://stainer.co.uk/shop/pc1/)  
+2 – [John Blow: Venus and Adonis (2008)](https://stainer.co.uk/shop/pc2/)  
+3 – [Giovanni Battista Draghi: ‘From harmony’ (A Song for St Cecilia’s Day, 1687) (2011)](https://stainer.co.uk/shop/pc3/)  
+4 – [Restoration Trio Sonatas (2012)](https://stainer.co.uk/shop/pc4/)  
+5 – [Odes on the Death of Henry Purcell (2013)](https://stainer.co.uk/shop/pc5/)  
+6 – [English Keyboard Music 1650–1695: Perspectives on Purcell (2018)](https://stainer.co.uk/shop/pc6/)  
