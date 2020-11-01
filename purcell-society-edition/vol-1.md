@@ -1,3 +1,7 @@
+[Home](/index.md)  |  [The Purcell Society Edition](/purcell-society-edition.md)  |  [Companion Series](/purcell-society-companion-series.md)  |  [Contact us](/contact-us.md)
+
+***  
+
 ## Henry Purcell: Three Occasional Odes, edited by Bruce Wood (Purcell Society Edition Vol. 1)
 
 The new Purcell Society Edition Volume 1 contains the following three works by Henry Purcell:  
