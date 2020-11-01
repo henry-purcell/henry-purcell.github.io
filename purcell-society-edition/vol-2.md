@@ -4,16 +4,16 @@
 
 ## Henry Purcell: Timon of Athens, edited by Ian Spink (Purcell Society Edition Vol. 2)  
 
-Purcell Society Edition Volume 2 contains Henry Purcell’s Timon of Athens, Z. 632, which was written for a revival of Thomas Shadwell’s drama The History of Timon of Athens (an adaptation of Shakespeare’s play).  
+Purcell Society Edition Volume 2 contains Henry Purcell’s *Timon of Athens*, Z. 632, which was written for a revival of Thomas Shadwell’s drama *The History of Timon of Athens* (an adaptation of Shakespeare’s play).  
 
 Purcell’s music is scored for 2 sopranos, tenor and bass soloists, SATB chorus and instrumental ensemble.  
 
-Publisher: Novello & Co.  
+Publisher: Novello & Co (now Wise Music).  
 Publication date: 1994  
 
-The full score of Timon of Athens is available to purchase in hardback and paperback.  
+The full score of *Timon of Athens* is available to purchase in [hardback](https://www.musicroom.com/product/musnov151002-01/henry-purcell-purcell-society-volume-2-timon-of-athens-satb.aspx) and [paperback](https://www.musicroom.com/product/musnov151002/henry-purcell-purcell-society-volume-2-timon-of-athens-satb.aspx).  
 
-Instrumental parts are available on hire. For further information, please contact Novello & Co.
+Instrumental parts are available on hire. For further information, please contact Wise Music Hire Library at [hire@wisemusic.com](mailto:hire@wisemusic.com)
 
 Note about the edition:  
 
