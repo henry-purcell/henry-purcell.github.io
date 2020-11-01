@@ -1,4 +1,4 @@
-Home | The Purcell Society Edition | Companion Series | Contact us
+[Home](/index.md)  |  The Purcell Society Edition  |  Companion Series  |  Contact us
 
 ***  
 
