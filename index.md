@@ -2,7 +2,7 @@
 
 ***  
 
-## Welcome to the Purcell Society  
+## Welcome to the Purcell Society website  
 
 The Purcell Society is publishing the complete musical works of Henry Purcell in modern, authoritative printed editions. The Purcell Society Edition is designed with performers, researchers, librarians and music lovers in mind.  
 
@@ -12,4 +12,4 @@ The Society has recently initiated the Purcell Society Companion Series, a suppl
 
 Until 2007 Novello & Co. were the publishers to the Purcell Society. Since then Stainer & Bell have had this role. Stainer & Bell are publishing all remaining volumes in the complete edition and the Companion Series.  
 
-Performing material is available for many works. Offprints of individual works can often be purchased, sometimes in PDF format. This website provides details of the contents of each volume, and information on the availability of scores and performing materials.  Find out more on the [Purcell Society Edition](/purcell-society-edition.md) and Companion Series pages.  
+Performing material is available for many works. Offprints of individual works can often be purchased, sometimes in PDF format. This website provides details of the contents of each volume, and information on the availability of scores and performing materials.  Find out more on the [Purcell Society Edition](/purcell-society-edition.md) and [Companion Series](/purcell-society-companion-series.md) pages.  
