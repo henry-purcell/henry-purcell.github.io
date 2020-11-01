@@ -1,3 +1,8 @@
+---
+layout: page
+title: Contact Us
+---
+
 ## Contact Us  
 
 Please see the Purcell Society Edition and Companion Series webpages for information on availability of individual volumes in the series and links to the publishers’ websites.  
