@@ -8,7 +8,7 @@ Purcell Society Edition Volume 2 contains Henry Purcell’s *Timon of Athens*, Z
 
 Purcell’s music is scored for 2 sopranos, tenor and bass soloists, SATB chorus and instrumental ensemble.  
 
-Publisher: Novello & Co (now Wise Music).  
+Publisher: Novello & Co (now Wise Music)  
 Publication date: 1994  
 
 The full score of *Timon of Athens* is available to purchase in [hardback](https://www.musicroom.com/product/musnov151002-01/henry-purcell-purcell-society-volume-2-timon-of-athens-satb.aspx) and [paperback](https://www.musicroom.com/product/musnov151002/henry-purcell-purcell-society-volume-2-timon-of-athens-satb.aspx).  
