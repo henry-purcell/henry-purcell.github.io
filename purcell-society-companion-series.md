@@ -1,3 +1,7 @@
+[Home](/index.md)  |  [The Purcell Society Edition](/purcell-society-edition.md)  |  [Companion Series](/purcell-society-companion-series.md)  |  [Contact us](/contact-us.md)
+
+***  
+
 ## The Purcell Society Companion Series  
 
 In 2008 the Purcell Society launched a new Companion Series to complement the main Purcell Society Edition. This series features music by some of Purcell’s contemporaries – composers who were important influences on Purcell.  
