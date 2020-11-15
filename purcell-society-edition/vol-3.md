@@ -4,7 +4,7 @@
 
 ## Henry Purcell: Dido and Aeneas, edited by Margaret Laurie (Purcell Society Edition Vol. 3)  
 
-Purcell Society Edition Volume 3 contains Purcell’s Dido and Aeneas, Z. 626.  
+Purcell Society Edition Volume 3 contains Purcell’s *Dido and Aeneas*, Z. 626.  
 
 Publisher: Novello & Co. (now Wise Music)  
 Publication date: 1979  
