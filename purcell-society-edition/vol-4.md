@@ -4,7 +4,7 @@
 
 ## Henry Purcell: A Song for the Duke of Gloucester’s Birthday, edited by Ian Spink (Purcell Society Edition Vol. 4)
 
-Purcell Society Edition Volume 4 contains Who can from joy refrain?, Z. 342, which Purcell composed in the final year of his life for the birthday of the Duke of Gloucester. It is scored for 2 sopranos, two countertenors and bass soloists, SSATB chorus and instrumental ensemble.  
+Purcell Society Edition Volume 4 contains *Who can from joy refrain?*, Z. 342, which Purcell composed in the final year of his life for the birthday of the Duke of Gloucester. It is scored for two sopranos, two countertenors and bass soloists, SSATB chorus and instrumental ensemble.  
 
 Publisher: Novello & Co. (now Wise Music)  
 Publication date: 1990  
