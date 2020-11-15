@@ -10,4 +10,4 @@ A completely new edition is currently in preparation, to be published by Stainer
 
 Note about the edition:  
 
-This new edition will supersede the original edition issued in 1895 by Novello and Ewer.
+This forthcoming edition supersedes the original edition issued in 1895 by Novello and Ewer.
