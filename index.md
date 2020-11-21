@@ -4,7 +4,7 @@
 
 ## Welcome to the Purcell Society website  
 
-<img src="Henry_Purcell_Closterman_small.jpg" alt="Henry Purcell by Closterman" align="left" hspace="100" vspace="50"/>
+<img src="henry_purcell_by_closterman.jpg" alt="Henry Purcell by Closterman" align="left" hspace="100" vspace="50"/>
 
 The Purcell Society is publishing the complete musical works of Henry Purcell in modern, authoritative printed editions. The Purcell Society Edition is designed with performers, researchers, librarians and music lovers in mind.   
 
