@@ -2,7 +2,7 @@
 
 ***  
 
-## Welcome to the Purcell Society website  
+## Welcome to the Purcell Society  
 
 ![Henry Purcell by Closterman](/henry_purcell_by_closterman.jpg)  
 
