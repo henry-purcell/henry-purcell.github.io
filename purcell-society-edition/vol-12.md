@@ -9,7 +9,7 @@ Purcell Society Edition Volume 12 contains the music and complete text of the dr
 Publisher: Stainer & Bell  
 Publication date: 2010  
 
-The full score of *The Fairy Queen* is available to purchase from [Stainer & Bell](https://stainer.co.uk/shop/pe12/). Performing material (full score, play text and vocal and instrumental material) is available for rental. Please [email Stainer & Bell](mailto:post@stainer.co.uk) for further details.  
+The full score of *The Fairy Queen* is available to purchase from [Stainer & Bell](https://stainer.co.uk/shop/pe12/). Performing material (full score, play text and vocal and instrumental material) is available for rental. Please [contact Stainer & Bell](http://www.stainer.co.uk/contacting.html).  
    
 Note about the edition:  
 
