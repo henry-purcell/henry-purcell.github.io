@@ -25,7 +25,7 @@ The Mock-Marriage (Z. 605)
 Publisher: Novello & Co. (now Wise Music)  
 Publication date: 1998  
 
-The full score is available to purchase in [paperback](https://www.musicroom.com/product/musnov15101901/purcell-society-volume-19-the-indian-queen.aspx) and [hardback](https://www.musicroom.com/product/musnov151020-01/purcell-society-volume-20.aspx).
+The full score is available to purchase in [paperback](https://www.musicroom.com/product/musnov151020/purcell-society-volume-20.aspx) and [hardback](https://www.musicroom.com/product/musnov151020-01/purcell-society-volume-20.aspx).
 
 Note about the edition:  
 
