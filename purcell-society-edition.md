@@ -4,7 +4,7 @@
 
 ## The Purcell Society Edition
 
-This page gives details of which volumes of the Purcell Society Edition have been published, and by which publisher (either Novello & Co. or Stainer & Bell). All future volumes in the series will be published by Stainer & Bell.  Please follow the links below for details of the contents of each volume, the availability of scores and parts, and information on older, now superseded, volumes in the series.  
+This page gives details of which volumes of the Purcell Society Edition have been published, and by which publisher (either Novello & Co. or Stainer & Bell). All future volumes in the series will be published by Stainer & Bell.  Please follow the links below for details of the contents of each volume, the availability of scores and parts, and information on older, now superseded, volumes in the series.  For Stainer & Bell volumes, further information is available in a [brochure (PDF)](t108_2020.pdf).
 
 [Volume 1](/purcell-society-edition/vol-1.md) – Three Occasional Odes (Stainer & Bell, 2008)  
 [Volume 2](/purcell-society-edition/vol-2.md) – Timon of Athens (Novello, 1994)  
