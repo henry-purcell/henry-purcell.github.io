@@ -1,5 +1,4 @@
-[Home](/index.md)  |  [The Purcell Society Edition](/purcell-society-edition.md)  |  [Companion Series](/purcell-society-companion-series.md)  |  [Contact us](/contact-us.md)
-
+[Home](../index.md)  |  [The Purcell Society Edition](../purcell-society-edition.md)  |  [Companion Series](../purcell-society-companion-series.md)  |  [Contact us](../contact-us.md)
 ***  
 
 ## Henry Purcell: Timon of Athens, edited by Ian Spink (Purcell Society Edition Vol. 2)  
