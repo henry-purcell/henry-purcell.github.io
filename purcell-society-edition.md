@@ -42,5 +42,5 @@ This page gives details of which volumes of the Purcell Society Edition have bee
 
 Also published for the Purcell Society:  
 
-The Gresham Autograph – special facsimile edition (Novello, 1995).  
-Oh that my grief was throughly weigh’d, attrib. to Henry Purcell (Stainer & Bell, 2020).
+[The Gresham Autograph](https://www.musicroom.com/product/musnov151101/henry-purcell-gresham-autograph-voice.aspx) – a special facsimile edition of songs in Purcell's own hand  (Novello, 1995).  
+[Oh that my grief was throughly weigh’d](https://stainer.co.uk/a-newly-discovered-purcell-song/), a newly discovered song attributed to Henry Purcell (Stainer & Bell, 2020).
