@@ -3,7 +3,9 @@
 ***  
 
 ## Henry Purcell: Fantazias and Miscellaneous Instrumental Music, edited by Thurston Dart, revised by Michael Tilmouth (Purcell Society Edition Vol. 31)  
+
 Purcell Society Edition Volume 31 contains the following works by Purcell:  
+
 Fantazias of Three Parts  
 Fantazia 1  
 Fantazia 2  
