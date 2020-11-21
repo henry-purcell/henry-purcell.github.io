@@ -94,21 +94,29 @@ Who but a slave (Z. 440)
 Who can behold Florella’s charms (Z. 441)  
 Ye happy swains (Z. 443)  
 Young Thirsis’ fate (Z. 473)  
+
 Appendix A: Arrangements  
+
 Turn then thine eyes (Z. 425)  
 What can we (Z. 429)  
 Leave these useless arts (Z. 389)  
+
 Appendix B: Mock songs  
+
 When first Amintas (Z. 430)  
 Oh! how happy’s he (The loyal delights of a contented mind) (Z. 403)  
 Honours may crown (The triumphs of a conquering lover) (Z. M627/21))  
 No watch, dear Celia (Z. 401)  
 We now, my Thyrsis (Z. 427)  
 I envy not a monarch’s fate (Z. 376)  
+
 Appendix C: Incomplete songs  
+
 I fain would be free (Z. 377)  
 Ah! what pains (Z. 354)  
+
 Appendix D: Songs of uncertain authorship  
+
 When Thirsis did the splendid eye (Z. 436)  
 When I a lover (Z. 433)  
 Sweet tyranness (Z. S70)  
