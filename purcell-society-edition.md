@@ -6,7 +6,7 @@
 
 This page gives details of which volumes of the Purcell Society Edition have been published, and by which publisher (either Novello & Co. or Stainer & Bell). All future volumes in the series will be published by Stainer & Bell.  Please follow the links below for details of the contents of each volume, the availability of scores and parts, and information on older, now superseded, volumes in the series.  
 
-Volume 1 – Three Occasional Odes (Stainer & Bell, 2008)  
+[Volume 1](/purcell-society-edition/vol-1.md) – Three Occasional Odes (Stainer & Bell, 2008)    
 Volume 2 – Timon of Athens (Novello, 1994)  
 Volume 3 – Dido and Aeneas (Novello, 1979)  
 Volume 4 – Song for the Duke of Gloucester’s Birthday (Novello, 1990)  
