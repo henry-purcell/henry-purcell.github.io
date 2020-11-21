@@ -4,7 +4,7 @@
 
 ## Henry Purcell: Henry Purcell: Ode on St Cecilia’s Day 1692, edited by Peter Dennison (Purcell Society Edition Vol. 8)  
 
-Purcell Society Edition Volume 8 contains Purcell’s ode Hail, bright Cecilia, Z. 328.  
+Purcell Society Edition Volume 8 contains Purcell’s ode *Hail, bright Cecilia*, Z. 328.  
 
 Publisher: Novello & Co. (now Wise Music)  
 Publication date: 1978  
