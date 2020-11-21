@@ -13,9 +13,9 @@ The new Purcell Society Edition Volume 1 contains the following three works by H
 Publisher: Stainer & Bell  
 Publication date: 2008  
 
-The full score of *Three Occasional Odes* is available [to purchase from Stainer & Bell](https://stainer.co.uk/shop/pe1/).  
+The full score of *Three Occasional Odes* is available to purchase from [Stainer & Bell](https://stainer.co.uk/shop/pe1/).  
 
-Offprints of each work are also available separately from Stainer & Bell. Performing material for each ode (full scores, vocal scores and instrumental parts) is available for rental from Stainer & Bell. Vocal scores are also available for sale (print to demand). Please email Stainer & Bell at [post@stainer.co.uk](mailto:post@stainer.co.uk) for further details of these.  
+Offprints of each work are also available separately from Stainer & Bell. Performing material for each ode (full scores, vocal scores and instrumental parts) is available for rental from Stainer & Bell. Vocal scores are also available for sale (print to demand). Please contact [Stainer & Bell](https://stainer.co.uk/contact/) for further details of these.  
 
 Note about the edition:  
 
