@@ -17,7 +17,7 @@ Rule a Wife and Have a Wife (Z. 587)
 Sir Anthony Love (Z. 588)  
 Sir Barnaby Whigg (Z. 589)  
 Sophonisba (Z. 590)  
-The Spanish Fryar (Z. 610) 
+The Spanish Fryar (Z. 610)  
 The Tempest (Z. 631/10) – Purcell’s song ‘Dear pretty youth’ only; the remaining music is now believed to be by John Weldon and is not included here.  
 Theodosius (Z. 606)  
 Tyrannick Love (Z. 613)  
@@ -28,7 +28,7 @@ Overture in Mr P[urcell’s] Opera
 Publisher: Stainer & Bell  
 Publication date: 2010  
 
-The full score is available to purchase from Stainer & Bell in hardback. Offprints of individual works are also available to purchase separately. Please email Stainer & Bell for further details.  
+The full score is available to purchase from Stainer & Bell in [hardback](https://stainer.co.uk/shop/pe21/). Offprints of individual works are also available to purchase separately. Please contact [Stainer & Bell](https://stainer.co.uk/contact/) for further details.  
 
 Note about the edition:  
 
