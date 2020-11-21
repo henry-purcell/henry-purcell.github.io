@@ -4,7 +4,7 @@
 
 ## Henry Purcell: Dioclesian, edited by Margaret Laurie (Purcell Society Edition Vol. 9)  
 
-Purcell Society Edition Volume 9 contains Henry Purcell’s dramatic opera *The Prophetess or Dioclesian*, Z. 627.  
+Purcell Society Edition Volume 9 contains Henry Purcell’s dramatic opera *The Prophetess, or The History of Dioclesian*, Z. 627.  
 
 Publisher: Novello & Co. (now Wise Music)  
 Publication date: 1961 (reprinted with minor revisions in 1979)  
