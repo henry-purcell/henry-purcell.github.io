@@ -4,6 +4,8 @@
 
 ## Welcome to the Purcell Society website  
 
+![Henry Purcell by Closterman](/Henry_Purcell_Closterman_small.jpg "Henry Purcell by Closterman")
+
 The Purcell Society is publishing the complete musical works of Henry Purcell in modern, authoritative printed editions. The Purcell Society Edition is designed with performers, researchers, librarians and music lovers in mind.  
 
 The modern Purcell Society Edition is being published in 33 volumes. These scores replace the ‘old’ Purcell Society edition (The Works of Henry Purcell) published between the 1870s and 1970s. The modern series contains completely new editions, edited from original sources by today’s leading Purcell scholars. The editions draw on the latest scholarship and on newly discovered sources of Purcell’s music. They are produced to the highest editorial standards and are peer-reviewed before publication.  
