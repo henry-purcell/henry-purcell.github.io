@@ -9,7 +9,7 @@ Purcell Society Edition Volume 19 contains all the surviving music and the full 
 Publisher: Novello & Co. (now Wise Music)  
 Publication date: 1994  
 
-The full score is available to purchase in [paperback](https://www.musicroom.com/product/musnov15101901/purcell-society-volume-19-the-indian-queen.aspx) and [hardback](https://www.musicroom.com/product/musnov15101901/purcell-society-volume-19-the-indian-queen.aspx).
+The full score is available to purchase in [hardback](https://www.musicroom.com/product/musnov15101901/purcell-society-volume-19-the-indian-queen.aspx).
 
 Note about the edition:  
 
