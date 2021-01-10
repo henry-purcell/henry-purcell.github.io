@@ -20,6 +20,8 @@ Let mine eyes run down with tears (Z.24)
 Hear my prayer, O God (Z.14)  
 O Lord, thou art my God (Z.41)  
 Out of the deep (Z.45)  
+
+plus  
 Pelham Humfrey: By the waters of Babylon, adapted for organ accompaniment by Henry Purcell (?)
 
 Publisher: Stainer & Bell  
