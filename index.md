@@ -15,3 +15,6 @@ The Society has recently initiated the Purcell Society Companion Series, a suppl
 Until 2007 Novello & Co. were the publishers to the Purcell Society. Since then Stainer & Bell have had this role. Stainer & Bell are publishing all remaining volumes in the complete edition and the Companion Series.  
 
 Performing material is available for many works. Offprints of individual works can often be purchased, sometimes in PDF format. This website provides details of the contents of each volume, and information on the availability of scores and performing materials.  Find out more on the [Purcell Society Edition](/purcell-society-edition.md) and [Companion Series](/purcell-society-companion-series.md) pages.  
+
+**NEWS**  
+January 2021:  Volume 28 of the Purcell Society edition has just been published.  This contains 14 anthems for voices and continuo by Purcell, plus an adaptation of Pelham Humfrey's anthem 'By the waters of Babylon' for voices and organ believed to be by Purcell. [Read more about the edition...]/(/purcell-society-edition/vol-28.md)
