@@ -34,7 +34,7 @@ This page gives details of which volumes of the Purcell Society Edition have bee
 [Volume 25](/purcell-society-edition/vol-25.md) – Secular Songs for Solo Voice (Novello, 1985)  
 [Volume 26](/purcell-society-edition/vol-26.md) – King Arthur (Novello, 1971)  
 [Volume 27](/purcell-society-edition/vol-27.md) – Symphony Songs (Stainer & Bell, 2008)  
-[Volume 28](/purcell-society-edition/vol-28.md) – Sacred Music – Part IV (Stainer & Bell, 2021) - **NEW!**
+[Volume 28](/purcell-society-edition/vol-28.md) – Sacred Music – Part IV (Stainer & Bell, 2021) - **NEW!**  
 [Volume 29](/purcell-society-edition/vol-29.md) – Sacred Music – Part V (Stainer & Bell, 2011)  
 [Volume 30](/purcell-society-edition/vol-30.md) – Sacred Music – Part VI (Novello, 1993)  
 [Volume 31](/purcell-society-edition/vol-31.md) – Fantazias and Miscellaneous Instrumental Music (Novello, 1990)  
