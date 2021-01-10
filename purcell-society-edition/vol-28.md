@@ -33,4 +33,4 @@ Individual titles are also available as offprints and as PDF files. Please conta
 
 Note about the edition:  
 
-This edition supersedes the original Purcell Society Edition Vol. 28 edited by Anthony Lewis and Nigel Fortune and published by Novello & Co.  
+This edition supersedes the original Purcell Society Edition Vol. 28 edited by Anthony Lewis and Nigel Fortune and published by Novello & Co. in 1959. 
