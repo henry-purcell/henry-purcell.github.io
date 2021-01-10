@@ -22,7 +22,8 @@ O Lord, thou art my God (Z.41)
 Out of the deep (Z.45)  
 
 plus  
-Pelham Humfrey: By the waters of Babylon, adapted for organ accompaniment by Henry Purcell (?)
+Pelham Humfrey: By the waters of Babylon,  
+adapted for organ accompaniment by Henry Purcell (?)
 
 Publisher: Stainer & Bell  
 Publication date: 2021  
