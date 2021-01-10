@@ -29,7 +29,7 @@ Publication date: 2021
 
 The full score is available to purchase from Stainer & Bell in [hardback](https://stainer.co.uk/shop/pe28/).  
 
-Individual titles are also available as offprints and as PDF files. Please contact Stainer & Bell for further details.  
+Individual titles are also available as offprints and as PDF files. Please contact [Stainer & Bell](https://stainer.co.uk/contact/) for further details.  
 
 Note about the edition:  
 
