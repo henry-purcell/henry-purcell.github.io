@@ -8,7 +8,7 @@ This page gives details of which volumes of the Purcell Society Edition have bee
 
 [Volume 1](/purcell-society-edition/vol-1.md) – Three Occasional Odes (Stainer & Bell, 2008)  
 [Volume 2](/purcell-society-edition/vol-2.md) – Timon of Athens (Novello, 1994)  
-[Volume 3](/purcell-society-edition/vol-3.md) – Dido and Aeneas (Stainer & Bell, 2021)  - NEW!  
+[Volume 3](/purcell-society-edition/vol-3.md) – Dido and Aeneas (Stainer & Bell, 2021)  - **NEW!**  
 [Volume 4](/purcell-society-edition/vol-4.md) – Song for the Duke of Gloucester’s Birthday (Novello, 1990)  
 [Volume 5](/purcell-society-edition/vol-5.md) – Twelve Sonatas of Three Parts (Novello, 1976)  
 [Volume 6](/purcell-society-edition/vol-6.md) – Harpsichord and Organ Music (Stainer & Bell – forthcoming)  
