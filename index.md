@@ -17,4 +17,4 @@ Until 2007 Novello & Co. were the publishers to the Purcell Society. Since then 
 Performing material is available for many works. Offprints of individual works can often be purchased, sometimes in PDF format. This website provides details of the contents of each volume, and information on the availability of scores and performing materials.  Find out more on the [Purcell Society Edition](/purcell-society-edition.md) and [Companion Series](/purcell-society-companion-series.md) pages.  
 
 **NEWS**  
-January 2021:  Volume 28 of the Purcell Society Edition has just been published. This contains 14 anthems for voices and continuo by Purcell, plus an adaptation of Pelham Humfrey's anthem 'By the waters of Babylon' for voices and organ believed to be by Purcell. [Read more about the edition...](/purcell-society-edition/vol-28.md)
+January 2022:  The Society's completely new edition of Purcell's <i>Dido and Aeneas</i> (Volume 3 of the Purcell Society Edition) has just been published.  [Read more about the edition...](/purcell-society-edition/vol-3.md)
