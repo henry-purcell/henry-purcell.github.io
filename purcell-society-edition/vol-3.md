@@ -7,7 +7,7 @@
 Purcell Society Edition Volume 3 contains Purcell’s *Dido and Aeneas*, Z. 626.  
 
 Publisher: Stainer & Bell  
-Publication date: 2020
+Publication date: 2021
 
 This completely new edition supersedes the original Purcell Society Edition Vol. 3 published by Novello & Co. 
 
