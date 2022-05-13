@@ -11,7 +11,7 @@ Publication date: 2021
 
 This completely new edition supersedes the original Purcell Society Edition Vol. 3 published by Novello & Co.  The full score is available to purchase from [Stainer & Bell](https://stainer.co.uk/shop/pe3/).  Vocal score and instrumental material are in preparation.  
 
-In May 2021, staff and students of the Royal Academy of Music gave the world premiere performances of this new edition, in collaboration with the Purcell Society and Stainer & Bell. These performances are freely available on YouTube:
+In May 2021, staff and students of the Royal Academy of Music gave the world premiere performances of this new edition, in collaboration with the Purcell Society and Stainer & Bell. Videos of these performances are freely available on the Royal Academy of Music website:
 
 [Performance from 28 May 2021, in which the role of the Sorceress was taken by a bass](https://www.ram.ac.uk/recordings/dido-and-aeneas-28)  
 
